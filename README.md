@@ -1,4 +1,4 @@
-this lemon shooter project is borrowed from a scratch user if you want you can check out their page an my page below
+this lemon shooter project is borrowed from a scratch user if you want you can check out their page and my page below
 
 https://scratch.mit.edu/users/ShaA19ET/
 
